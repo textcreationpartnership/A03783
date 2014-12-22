@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-King Edward the 2 surnamed Carnaruen was crouned att westminster at the 22 yere of his age the 24 ofTHE DEPLORABLE LIFE AND DEATH▪ of EDWARD the Second, KING of ENGLAND.Together with the Downefall of 
+King Edward the 2 surnamed Carnaruen was crouned att westminster at the 22 yere of his age the 24 of
 #####Body#####
 
 1. THE DEPLORABLE Life and Death, of Edward the Second, KING of ENGLAND.
